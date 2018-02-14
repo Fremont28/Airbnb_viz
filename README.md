@@ -9,4 +9,4 @@ Hollywood Hills West is by far the most expensive neighborhoods among the most h
 
 Airbnb hosts in Hollywood Hills West significantly up-charge their guests. The average Airbnb stay in the "West Hills" is $276 more expensive per night then in Venice Beach, which is the second most expensive area in LA. 
 
-Read Here: 
+Read Here: https://beyondtheaverage.wordpress.com/2018/02/14/living-like-a-king-if-only-for-a-night-in-la/
